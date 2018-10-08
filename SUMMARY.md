@@ -1,7 +1,7 @@
 # Table of contents
 
 * [序言](README.md)
-* [更新日志](untitled.md)
+* [个人主页](http://www.romii.wang/frontpage)
 
 ## 2018年
 

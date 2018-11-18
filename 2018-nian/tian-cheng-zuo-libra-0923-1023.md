@@ -254,7 +254,7 @@
 
 下午六点，老地方，燕大后海，拍出来感觉好极了：
 
-![](../.gitbook/assets/image%20%2873%29.png)
+![](../.gitbook/assets/14.jpg)
 
 ### 2018.10.19
 
@@ -262,9 +262,9 @@
 
 （形色app：“槭树”，多半用“枫”称呼它）
 
-![](../.gitbook/assets/image%20%2850%29.png)
+![](../.gitbook/assets/15.jpg)
 
 下午五点，这树没识别出来，还是西大食堂附近：
 
-![](../.gitbook/assets/image%20%2827%29.png)
+![](../.gitbook/assets/13.jpg)
 

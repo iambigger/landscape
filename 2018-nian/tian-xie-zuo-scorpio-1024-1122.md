@@ -22,11 +22,11 @@
 
 ![](../.gitbook/assets/8.jpg)
 
-![](../.gitbook/assets/7.jpg)
+![](../.gitbook/assets/7%20%281%29.jpg)
 
 在材料学院外面的路口拍摄，感觉很棒：
 
-![](../.gitbook/assets/5.jpg)
+![](../.gitbook/assets/5%20%281%29.jpg)
 
 下午三点，第一次走艺院楼后面的一条小路，看到了这样的风景:
 

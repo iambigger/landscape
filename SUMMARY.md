@@ -1,7 +1,6 @@
 # Table of contents
 
 * [序言](README.md)
-* [个人主页](http://www.romii.wang/frontpage)
 
 ## 2018年
 

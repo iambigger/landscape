@@ -14,6 +14,4 @@
 * [白羊座 Aries \(03/21 - 04/19\)](2018-nian/bai-yang-zuo-aries-0321-0419.md)
 * [金牛座 Taurus \(04/20 - 05/20\)](2018-nian/jin-niu-zuo-taurus-0420-0520.md)
 * [双子座 Gemini \(05/21 - 06/21\)](2018-nian/shuang-zi-zuo-gemini-0521-0621.md)
-* [巨蟹座 Cancer \(06/22 - 07/22\)](2018-nian/ju-xie-zuo-cancer-0622-0722.md)
-* [狮子座 Leo \(07/23 - 08/22\)](2018-nian/shi-zi-zuo-leo-0723-0822.md)
 
